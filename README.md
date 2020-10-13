@@ -14,7 +14,7 @@ The last word in the sentence — _Hedgehog_ — ends in the letter **G**. This 
 
 >Gazing out at the indifferent sea, Harold's absent-minded mind tried in vain to mould his mushy memory into a shape from which he could divine why he was at the seashore, alone, carrying an oversized novelty rubber mallet.
 
-This verbose sentence could then be followed by a setnece starting with a **T** such as:
+This verbose sentence could then be followed by a sentence starting with a **T** such as:
 
 >"This," thought Harold, "sucks."
 
