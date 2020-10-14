@@ -9,3 +9,7 @@ Rory let out a sigh and, as they crossed to the door, said, "Alright - let's get
 Hesitantly they open the door, the knob cold to the touch; winter just around the corner.
 
 Right at the end of the sidewalk, a car sat waiting, warm with an impatient idle.
+
+Each step drawing Rory closer to the dark blue sedan amped up their feelings of dread.
+
+_Don't let her see your nerves, Rory_ they thought to themselves.
