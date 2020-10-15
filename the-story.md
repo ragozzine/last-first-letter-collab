@@ -13,3 +13,5 @@ Right at the end of the sidewalk, a car sat waiting, warm with an impatient idle
 Each step drawing Rory closer to the dark blue sedan amped up their feelings of dread.
 
 _Don't let her see your nerves, Rory_ they thought to themselves.
+
+"So. You're finally here," said the sinister voice wafting out from the rolled-down window.
