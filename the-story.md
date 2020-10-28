@@ -15,3 +15,9 @@ Each step drawing Rory closer to the dark blue sedan amped up their feelings of 
 _Don't let her see your nerves, Rory_ they thought to themselves.
 
 "So. You're finally here," said the sinister voice wafting out from the rolled-down window.
+
+Working up the nerve, Rory leaned toward the open window trying to catch a glimse of the woman.
+
+No one had seen the woman; certainly never her face, but one thing was for sure, she controled the city.
+
+"Yeah, sorry," Rorry appologized, "I thought you said to meet you out front at one."
