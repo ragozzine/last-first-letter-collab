@@ -18,6 +18,10 @@ _Don't let her see your nerves, Rory_ they thought to themselves.
 
 Working up the nerve, Rory leaned toward the open window trying to catch a glimse of the woman.
 
-No one had seen the woman; certainly never her face, but one thing was for sure, she controled the city.
+No one had seen the woman; certainly never her face, but one thing was for sure, she controlled the city.
 
-"Yeah, sorry," Rorry appologized, "I thought you said to meet you out front at one."
+"Yeah, sorry," Rory apologized, "I thought you said to meet you out front at one."
+
+Every time she set a meet, no matter if Rory was early or late, her impatience was palpable.
+
+"Excuses are like dead horses, Rory," the woman purred. "They get you nowhere and really stink."
