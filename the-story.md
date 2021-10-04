@@ -25,3 +25,5 @@ No one had seen the woman; certainly never her face, but one thing was for sure,
 Every time she set a meet, no matter if Rory was early or late, her impatience was palpable.
 
 "Excuses are like dead horses, Rory," the woman purred. "They get you nowhere and really stink."
+
+Keen on cutting this conversation short Rory moved to the passanger side door and got in.
