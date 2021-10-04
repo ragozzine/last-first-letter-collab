@@ -6,9 +6,7 @@ Read the story so far at [the-story.md](the-story.md).
 ## An Example of How It Works
 If this is the latest sentence of the story:
 
->After walking for hours through the dark woods, Carol suddenly encountered an open, sunlit patch of grass.
-
-Under a dull, slate-gray sky, the wind-swept beach was empty, save for a few piles of driftwood, the odd seashell, and Harold the Forgetful Hedgehog.
+> Under a dull, slate-gray sky, the wind-swept beach was empty, save for a few piles of driftwood, the odd seashell, and Harold the Forgetful Hedgehog.
 
 The last word in the sentence — _Hedgehog_ — ends in the letter **G**. This means that, according to the last letter, first letter rule, the first word of the next sentence must start with a **G**. For example:
 
