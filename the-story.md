@@ -26,4 +26,4 @@ Every time she set a meet, no matter if Rory was early or late, her impatience w
 
 "Excuses are like dead horses, Rory," the woman purred. "They get you nowhere and really stink."
 
-Keen on cutting this conversation short Rory moved to the passanger side door and got in.
+Keen on cutting this conversation short Rory moved to the passenger door, took a deep breath, and got in.
