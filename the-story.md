@@ -1,5 +1,6 @@
 # A Story Told from Last Letter to First
 
+## Chapter 1
 The rain had finally stopped, dark clouds giving way to cautiously blue sky.
 
 Yellow streaks of sunlight cut through the dim chamber.
@@ -16,7 +17,7 @@ _Don't let her see your nerves, Rory_ they thought to themselves.
 
 "So. You're finally here," said the sinister voice wafting out from the rolled-down window.
 
-Working up the nerve, Rory leaned toward the open window trying to catch a glimse of the woman.
+Working up the nerve, Rory leaned toward the open window trying to catch a glimpse of the woman.
 
 No one had seen the woman; certainly never her face, but one thing was for sure, she controlled the city.
 
@@ -27,3 +28,6 @@ Every time she set a meet, no matter if Rory was early or late, her impatience w
 "Excuses are like dead horses, Rory," the woman purred. "They get you nowhere and really stink."
 
 Keen on cutting this conversation short Rory moved to the passenger door, took a deep breath, and got in.
+
+## Chapter 2
+In the beginning, Rory had just wanted to do something helpful for their mom.
