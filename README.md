@@ -22,7 +22,7 @@ As you can see, save for the letter rule, building a story like this holds bound
 
 * **Keep submissions short.** The joy of this project comes from the unexpected. While submitting an entire 500-word entry in this style would be a noteworthy accomplishment, trading off 1-3 sentences with other participants will create a more interesting end result. 
 * **Build on and add to the existing plot.** You're free to throw in whatever randomness you like. However, this exercise works best when each proceeding sentence advances, rather than negates, the previous one.
-* **Keep it clean!** Racist, sexist, hateful, or extremely profame language will likely be rejected.
+* **Keep it clean!** Racist, sexist, hateful, or extremely profane language will likely be rejected.
 * **Don't be a one-hit wonder.** Multiple submissions are more than welcome. That said, refrain from building upon your own accepted addition.
 
 ---
