@@ -33,3 +33,5 @@ Keen on cutting this conversation short Rory moved to the passenger door, took a
 In the beginning, Rory had just wanted to do something helpful for their mom.
 
 Most of the time, they kept to themselves, including when at home.
+
+However, since the accident, Rory put out a solid effort to do things for those they cared about and held dear.
