@@ -35,3 +35,6 @@ In the beginning, Rory had just wanted to do something helpful for their mom.
 Most of the time, they kept to themselves, including when at home.
 
 However, since the accident, Rory put out a solid effort to do things for those they cared about and held dear.
+
+
+Drizzle fell on the close-knit curtain of pine boughs that crowded the cabin from all sides.
