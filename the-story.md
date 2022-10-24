@@ -31,3 +31,5 @@ Keen on cutting this conversation short Rory moved to the passenger door, took a
 
 ## Chapter 2
 In the beginning, Rory had just wanted to do something helpful for their mom.
+
+Most of the time, they kept to themselves, including when at home.
