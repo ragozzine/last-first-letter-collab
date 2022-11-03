@@ -38,3 +38,5 @@ However, since the accident, Rory put out a solid effort to do things for those 
 
 
 Drizzle fell on the close-knit curtain of pine boughs that crowded the cabin from all sides.
+
+Scorching flames arose from the fireplace as Rory added maple wood to it.
