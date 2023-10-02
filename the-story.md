@@ -36,7 +36,8 @@ Most of the time, they kept to themselves, including when at home.
 
 However, since the accident, Rory put out a solid effort to do things for those they cared about and held dear.
 
-
 Drizzle fell on the close-knit curtain of pine boughs that crowded the cabin from all sides.
 
 Scorching flames arose from the fireplace as Rory added maple wood to it.
+
+Invigorated by the smell of burning almost-syrup, Rory wrapped up their simple calisthenic stretches and got ready to kick off their daily 5-mile loop around the lake.
